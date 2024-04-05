@@ -5,7 +5,7 @@ yeah- 💞️ I’m looking to collaborate on ...
 yeah - 😄 Pronouns: ...
  i like it- ⚡ Fun fact: ...
 
-<!---
+nice 😁
 Socialustaz02/Socialustaz02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+---> i like online business 
